@@ -35,4 +35,203 @@ VIDEOS FOR THE STRATEGY
 31.   I tried to flip $100 into $6000 in 21 days trading forex.
 32.   I turned $100 into $3,074 in 14 days trading forex.
 33.   I tried to turn $100 into $200 in a week trading forex.
-34.   
+34.   I'm going to turn $100 to $1,000,000.
+35.   I just made $120,000 in 48h with this forex trade.
+36.   How to grow small forex trading account with very little money in 2025.
+37.   The best top down analysis strategy for 2025/forex trading guid.
+38.   Trading forex is a video game (here's how to win)
+39.   How to do technical analysis for beginners in 2025/forex trading course.
+40.   Revealing how i made $2,800,000 with trading forex in 2025.
+41.   How to start swing trading as begineer in 2025 i full guide step by step.
+42.   I made $346,000 in trade to prove its not luck (full break down).
+43.   How to become profitable at trading so fast it feels illegal.
+44.   How to grow a small forex account in less than a week 
+45.   This trading strategy made me $54,000 in just 24hours.
+46.   Trading was hard untill i understood this 4 concepts.
+47.   Every candlestick pattern you need to know to trade forex.
+48.   How i made $100,000 in 8hours trading forex(copy me).
+49.   I spend a day with the student that made $110,000 trading forex.
+50.   How this trading strategy made me $70,000 in 1 day head and shoulders pattern.
+51.   This trading strategy made me $26,000 in just 12hours.
+52.   Best risk management strategy to make millions with trading.
+53.   Easiest forex trading strategy to be profitabilityin 2025/ shift of structure.
+54.   I turned $1,100 into $17,000 in in 1 month trading forex
+55.   The ultimade guide to price action trading strategy for begginers.
+56.   Worst trading mistakes and how to fix them.
+57.   Why i haven't taken a trade in 30 days.
+58.   Support and resistance trading strategy was hard untill i understood this.
+59.   How i could become a profitable trader earlier (if i could startover).
+60.   How to make $250 a day with day trading as a begginner.
+61.   How to start day trading for beginners in 2025/free course.
+62.   How i turned $1,111 into $3,461 in 7 days forex trading.
+63.   How to become a profitable trader in less than 30 days.
+64.   My newest challenge turning $100 into...
+65.   How to start forex trading for beginners step by step in 2025/full guide.
+66.   How to use the news to make money trading forex/fundamental analysis.
+67.   Starting in trading is hard, untill you watch this video.
+68.   The truth behind the $100 to $1,000,000 challenge.
+69.   I tried to flip $250,000 into 1 million in one week trading forex.
+70.   I tried to turn $300,000 into $600,000 in just a week trading forex.
+71.   I tried to turn $130,000 into $260,00 in a week of trading.
+72.   6 reversal candlestick pattern you need to know before starting trading.
+73.   I tried to flipping $100 into $180,000 in 2 months.
+74.   I turned $100 into $78,486 in 6 weeks.
+75. How i do forex technical analysis(for beginners)
+76. I made $46,205 from $100 in less than 40 days
+77.   I turned $100 into $19,806 in less than 30 days.
+78.   I turned $100 into $7,106 in only 21 days trading forex.
+79.   I turned $100 into $4,160 in 14 days with trading.
+80.   I turned $100 into $2,737 in a week trading forex.
+81.   I'm going to turn $100 into $1,000,000 with forex trading.
+82.   The story on how i made my first $1,000,000 .
+83.   I will turn $100 into 1,000,000 in under 60 days.
+84.   How to trade forex for beginners in 2025/full tutorial.
+85.   The only trading strategy you need to be profitable / swing trading.
+86.   How to learn the most profitable skill ever.
+87.   How i made $2,280,000/ year at age 22.
+88.   How i made $110,000 trading forex in just 24hours 
+89.   Master the millionaire mindset for 2025 success.
+90.   Best forex strategy to never lose streaks again.
+91.   From dunkin donuts to millionaire trader (my story).
+92.   How to recover from a forex drawdown (the fast way).
+93.   Learn how this forex AOI secret bought me a $200,000 watch.
+94.   How this trading made me $60,000 in 30 seconds!
+95.   This ex-factory worker now makes money trading full-time.
+96.   Teaching a mcdonalds employee how to trade forex pt2.
+97.   How to win at forex trading (psychlogical fundamentals).
+98.   I helped a mcdonalds employee to become a profitable trader.
+99.   Raja banks - what its takes to make it in forex.
+100.  This strategy made me $100,000 trading forex.
+101.  This student used our strategy to make $50k+ in payouts.
+102.  7 most frequenctly struggles & barriers on forex (procrastination).
+103.  QB stew making $100,000 in 1 day & smoking weed in professional football game.
+104.  The best swing trading strategy (for beginners).
+105.  The best forex money mindset psychology video pt2.
+106.  How to trade GBPJPY with ema pt2.
+107.  Golden ticket to becoming a full time profitable trader,fomo,fear ep 19.
+108.  Mt4 v/s Mt5 which one is better?
+109.  How swaggy (went from homeless to owning a $10m house).
+110.  I predicted the bitcoin drop before it happened (here's how).
+111.  Student quits constraction job turns full time trader ($1500 to $7000 in 2 weeks).
+112.  How i turned $102 to $3000 live trading forex (strategy exposed).
+113.  From getting fired by grant cardone to investing $1,000,000! -cody.
+114.  Watch me turn $100 into $3,000 (live strategy breakdown).
+115.  Time piece trading crashes podcasts with billionaire barbar, $2 million +in.
+116.  Nour trades fromwall street, to fulltime options day trader!
+117.  Forex attorney on selling his firm & partnering with cue banks.
+118.  How to trade forex with moving averages part1
+119.  Secrete to success with millionaire forex trader cue banks.
+120.  She quit the miami police to trade forexfull time- here's her story.
+121.  Interview with top student make 25%in 2 weeks forex swing trader set and forget.
+122.  What james storms did after lossing $400,000 when he made $1.4 million.
+123.  Forex trader spends $100,000+ on clothes!! (set and forget)podcast ep 4.
+124.  Drewize banks on the mistakes traders makes #set and forget podcast ep 3.
+125.  GBPJPY forex trade that made me $25,000(in one week).
+126.  NFTs are dying? or comming back stronger?
+127.  Set and forget podcast ep1 making $ 100,000 trading forex mindset.
+128.  How i made $58k trading in 60days.full strategy+track record.
+129.  Live forex session with 965 traders-full strategy reveal pt 1
+130.  3 things that could've saved my forex account.
+131.  This trade cost me $50,000 in minutes.
+132.  How i made $60,000 trading forex in 3 day part2.
+133.  How i made $60,000 trading forex in 3 days part1.
+134.  Live forex market breakdown gbpusd.
+135.  How i spot forex pattern that print money.
+136.  When to buy when to sell forex/crypto market vlog.
+137.  Live swing trading forex at its simplest market breakdown.
+138.  Live forex trade breakdown with the students sunday swings.
+139.  Forex swing trading at its simplest live with my telegram group.
+140.  200k ftmo challenge gbpusd swing trade breakdown.
+141.  Market break down learn and earn.
+142.  (live trading) giving my top trades for free / sunday swing 1.
+143.  (live trading) giving my top trades for free / sunday swing 2.
+144.  (live trading) giving my top trades for free / sunday swing 3.
+145.  (live trading) giving my top trades for free / sunday swing 4.
+146.  (live trading) giving my top trades for free / sunday swing 5.
+147.  (live trading) giving my top trades for free / sunday swing 6.
+148.  This stream ends when i make $1m forex trading.
+149.  This stream ends when i make $1m forex trading.
+150.  (live trading) giving my top trades for free / sunday swing 7.
+151.  (live trading) giving my top trades for free / sunday swing 8.
+152.  Live trading losing - $200,000 (i'm going to sell my cars).
+153.  (live trading) giving my top trades for free / sunday swing 9.
+154.  Part 4 turning $100 into $1,000,000 trading forex -live.
+155.  Part 3 turning $100 into $1,000,000 trading forex -live.
+156.  Part 2 turning $100 into $1,000,000 trading forex -live.
+157.  Part 1 turning $100 into $1,000,000 trading forex -live.
+158.  5 week sunday swings.
+159.  Class 5 fx alexg bootcamp.
+160.  4 sunday swings trade.
+161.  3 sunday swing trader.
+162.  Class 4 fxalex 5 day bootcamp.
+163.  Class 3 alexg 5 day boot camp.
+164.  2 sunday swings.
+165.  Class 2 alex g 5 day bootcamp.
+166.  Class 1 alex g 5 day bootcamp.
+167.  1 sunday swings.
+168.  3 day bonus day 
+169.  Day 3
+170.  Day 2
+171.  Day 1
+172.  3 day accelerated bootcamp intro.
+173.  Fx alexg sunday swing
+174.  Alex sunday swing trading crypto.
+175.  8 money mindset.
+176.  7 introduction crypto trading.
+177.  Sunday swing crypto forex.
+178.  6 greed and fear crypto forex.
+179.  Emotions.
+180.  Confidence set and forget psychology.
+181.  Sunday swing 107.
+182.  Day 27
+183.  Day 26
+184.  Day 25
+185.  Day 24
+186.  3 comparing yourself to others.
+187.  2 entry to psychology section.
+188.  Day 23
+189.  1 psychology section 1 ntr.
+190.  12 what grade trade should i take.
+191.  11 golden video
+192.  Day 22
+193.  Video 10
+194.  Video 9
+195.  Video 21
+196.  Video 8
+197.  Day 20 
+198.  Video 7
+199.  Day 19
+200.  Video 5
+201.  video 4
+202.  Day 17
+203.  Video 3
+204.  Video 2
+205.  Video 1
+206.  Full set and forget strategy intro.
+207.  Day 16
+208.  Day 6
+209.  Day 15
+210.  FX alex g boot camp day 14
+211.  Fx alexg day 13
+212.  Fx alex g 30 day bootcamp day 12
+213.  Fx alex g 30 day bootcamp day 11
+214.  Fx alex g 30 day bootcamp day  10
+215.  Fx alex g 30 day bootcamp day 1
+216.  Fx alex g 30 day bootcamp day 8
+217.  Fx alex g 30 day bootcamp day 7
+218.  Fx alex g 30 day bootcamp day 9
+219.  Fx alex g 30 day bootcamp day 5
+220.  Fx alex g 30 day bootcamp day 4
+221.  Fx alex g 30 day bootcamp day 3
+222.  Fx alex g 30 day bootcamp day 2
+223.  Fx alex g 30 day bootcamp day 1
+224.  Fx alex g set and forget.
+225.  Live trading success story ; $0 to $33,500 (the craziest comeback).
+226.  Live trading testimonial (how he went from $0 profits to full time-).
+227.  Live trading success story ; $6500 made after 3 years.
+228.  Live trading success story ; $200 to 200,000 (the most legendary).
+229.  He's a dentist who turned $90 into $50,000 trading.
+230.  Filipino student turned $0 into $10,000 trading forex.
+231.  This 18 year old made $ 12,000 using the set and forget strategy.
+232.  This 27 years old lost everything .. then made $30,000 trading.
+233.s
