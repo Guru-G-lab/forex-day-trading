@@ -234,4 +234,45 @@ VIDEOS FOR THE STRATEGY
 230.  Filipino student turned $0 into $10,000 trading forex.
 231.  This 18 year old made $ 12,000 using the set and forget strategy.
 232.  This 27 years old lost everything .. then made $30,000 trading.
-233.s
+233.  This 23 years old turned $700 into $10000 in 3 weeks day trading.
+234.  From losing everything in 1day to making $20,000 with this  strategy.
+235.  This 20 years old made +$38,600 in only one month trading forex.
+236.  How this 22 years old made $30000 trading forex.
+237.  How he went from employee and $0 to make $13,000 day trading.
+238.  This student made $ 120,000 with this trading strategy.
+239.  He turned $100 into $46,000 with this trading strategy.
+240.  This student made $62,500 in 3 months trading forex.
+241.  This student made $15,000 trading forex with the set and forget strategy.
+242.  This boxer made $41,000 in 4 months trading forex.
+243.  This 20 year old puerto turned $100 into $10,000 trading forex.
+244.  This 25 years old italian made $8500 trading forex.
+245.  This student turned $1,000 into $10,000 in 8 months forex trading.
+246.  This student made $25,000 in 10 months trading forex.
+247.  How this 23 years old student made $180,000 trading forex.
+248.  This student made $18,000 in a week trading forex.
+249.  How he went from employee to turn $4,000 into $ 100,000 trading forex.
+250.  3 best tips to become a profitable trader and make $500 a day.
+251.  This student turned $100 into $20,000 in 3 weeks trading forex.
+252.  3 things i wish i knew when i started trading.
+253.  Profitable trader reveals the trading strategy that made him $ 35,000.
+254.  Answering question from my students forex trading.
+255.  This guy turned $ 1,000 into $11,000 with this trading strategy.
+256.  This student made $6500 trading forex.
+257.  This student went from $244 to $10,000 in a week trading forex.
+258.  He made $80,000 with this trading strategy.
+259.  How this student made $30,000 trading forex failing 100 challenges.
+260.  He made $45,000 in 4 month trading forex.
+261.  I spend a day with a student that made $45,000 trading forex.
+262.  This student made $ 120,000 in one single month trading forex.
+263.  This student made $ 35,000 trading forex.
+264.  I spend a day with a student that made $120,000 trading forex.
+265.  This student made $7,000 in one day trading forex.
+266.  This student has made $50,000 trading forex.
+267.   This student made $22,000 trading forex in under 2 month.
+268.   This student made $10,000 trading forex with the set and forget strategy.
+269.   Jordan made $590,000 trading forex after beating cancer.
+270.   Dennis shares how he got 400k in payouts with only 3 hours a day.
+271.   Facundo shares his 90k in one-month earning trading forex.
+272.   Alec get a year based salary each month trading forex.
+273.   More than 50k in payouts trading forex for Dom.
+274.   How hakim made $40,000 just by trading forex.
